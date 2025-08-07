@@ -28,7 +28,7 @@ Com sua nova posição iluminada, Lumin se tornou o **[[Em Branco/Filhos de Ethe
 
 No ano de 600 d.A., aconselhado pelo próprio Ether de que o império precisava aprender a ser governado por mortais, Lumin abdicou. Antes de se retirar, ele ergueu do chão o magnífico **[[Em Branco/Pináculo de Cristal\|Pináculo de Cristal]]**, uma torre de cristal branco que se estende até os céus. Ali, ele se recolheria para meditar e guiar seus descendentes das sombras. Seu primogênito, Galen Vitrux, tornou-se o primeiro imperador mortal, iniciando a linhagem divina dos Vitrux, os Filhos de Ether, que até hoje detêm o direito sagrado ao trono do Império Resplandecente.
 
-### **Governo
+### **Governo**
 
 #### **A Dinastia Vitrux e o Trono de Cristal**
 
