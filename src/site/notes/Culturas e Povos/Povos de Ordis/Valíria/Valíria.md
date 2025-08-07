@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/culturas-e-povos/povos-de-ordis/valiria/valiria/","tags":["reino","gardenEntry"]}
+{"dg-publish":true,"permalink":"/culturas-e-povos/povos-de-ordis/valiria/valiria/","tags":["reino"]}
 ---
 
 ### **Valíria, o Império Resplandecente**
